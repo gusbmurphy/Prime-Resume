@@ -1,1 +1,0 @@
-# primeresume.github.io
